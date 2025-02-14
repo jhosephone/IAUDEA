@@ -7,6 +7,6 @@ Ingenieria Civil
 
 Enlace del video entrega 2: https://youtu.be/JQ30TKu0oXU
 
-Enlace del video entrega 3:
+Enlace del video entrega 3: https://youtu.be/l2C66DI7Z2E
 
 Muchas gracias por su atención y el aprendizaje
